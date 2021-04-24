@@ -1,8 +1,10 @@
 Isliamov Dzmitry NIkolaevich
 -------------
 
-##### Phone number: +375 (29) 809-87-68 
+##### Phone number: +375 (29) 809-87-68, 
+#### Poland mobile: +48 578 667 080 
 ##### e-mail: islyaamov.dimaa@gmail.com
+#### discord: dima.stary#6816
 
 ## Summary
 
